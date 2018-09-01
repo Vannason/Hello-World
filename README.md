@@ -3,6 +3,6 @@ demo of guide
 
 hello people
 
-i feel really sad because she has lefe me.
+i feel really sad because she has left me.
 
 
